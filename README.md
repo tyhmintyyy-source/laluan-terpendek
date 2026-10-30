@@ -1,0 +1,1 @@
+# laluan-terpendek
